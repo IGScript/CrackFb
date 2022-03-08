@@ -30,10 +30,3 @@ python instagram.py
 
 NOTE  : ADMIN TIDAK AKAN BERTANGGUNG JAWAB 
        JIKA TOOLS INI DI SALAH GUNAKAN 
-
-Onwer : Fikri 
-
-      : Untuk Tools Hack IG Premium
-        50K 3 Bulan Masa Aktif
-      
-Contac?: Fikri651@gmail.com
